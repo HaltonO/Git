@@ -1,3 +1,1 @@
-I love cats
-super cute
-MEOW
+you know spiders hate cats
